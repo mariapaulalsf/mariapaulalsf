@@ -36,5 +36,5 @@ Participei do programa de extensão Sabará+Inglês como monitora e instrutora d
 ## Contato
 
 - **GitHub:** [@mariapaulalsf](https://github.com/mariapaulalsf)
-- **LinkedIn:** [Adicionar link do perfil]
-- **E-mail:** [Adicionar e-mail profissional]
+- **LinkedIn:** [Maria Paula Lacerda](https://www.linkedin.com/in/maria-paula-lacerda-5306812b5/)
+- **E-mail:** mariapaula.lacerdasf@gmail.com
